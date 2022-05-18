@@ -1,2 +1,5 @@
-# marvel-contest-of-champions-free-stuff-hacks
-Marvel Contest of Champions Free stuff and 5 star crystal Hacks 2022 working guide
+# Marvel Contest of Champions Free stuff and 5 star crystal Hacks 2022
+
+Marvel Contest of Champions Free stuff and 5 star crystal Hacks 2022 working guide - Don't let anyone hang - once you hit someone, continue to complete the whole combination sequence. This basically means maintaining the offensive and not blocking the enemy's attack in the middle. In most cases, you will eventually gain the upper hand by concatenating a combination and completing it. All heroes in this game have their own combos and stunts. Although we won't insist that you learn everyone's stunts, you should at least know those heroes who belong to your team or will become part of the team. Again, you may want to do some research on specialties, because the enemy can drive them away. Either way, as long as you are fast enough, they can be intercepted (or you can intercept enemy stunts). In addition, it is also a good practice to use special offers as much as possible. After you lose the special meters, remember to count the meters; This should give you enough motivation to use your special price in the game. how to get unlimited units in marvel contest of champions
+
+<a href="https://clf2018.org/marvel-contest-of-champions-cheats/">Get here</a>
